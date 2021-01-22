@@ -5,3 +5,4 @@ Evil stepmother
 2 stepsisters
 Prince
 Fairy Godmother
+Mice
